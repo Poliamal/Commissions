@@ -1,12 +1,6 @@
-# About-Me
+# Commissions
 
-Born in the USA 🦅
-
-Half Mexican
-
-Knows Lua, C# 
-
-Commissions (USD Only) Cashapp, Crpyto, Robux (1.5X Value So $50 Would Be 7.5K)
+(USD Only) Cashapp, Crpyto, Robux (1.5X Value So $50 Would Be 7.5K)
 
 $60-135 Streamable / Blatant Script No UI (Price Changes On Amount Of Features And Complexity)
 
