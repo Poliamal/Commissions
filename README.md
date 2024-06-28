@@ -4,6 +4,8 @@
 
 $65-175 Streamable / Blatant Script No UI (Price Changes On Amount Of Features And Complexity)
 
+$70-90 Streamable (Pre-Made)
+
 $85-200 Custom Ui (Price Changes On Style)
 
 $30 Smoothness For X And Y Axis (Doesnt Use Jump Detection)
