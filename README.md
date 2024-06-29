@@ -6,7 +6,7 @@ $65-125 Streamable (Price Changes On Amount Of Features And Complexity Max Table
 
 $50-85 Streamable (Pre-Made)
 
-$85-200 Custom Ui (Price Changes On Style)
+$95-165 Custom Ui (Price Changes On Style)
 
 $30 Smoothness For X And Y Axis (Doesnt Use Jump Detection)
 
