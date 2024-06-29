@@ -2,9 +2,9 @@
 
 (USD Only) Cashapp, Crpyto, Robux (1.5X Value So $50 Would Be 7.5K)
 
-$65-175 Streamable / Blatant Script No UI (Price Changes On Amount Of Features And Complexity)
+$65-125 Streamable (Price Changes On Amount Of Features And Complexity Max Table Size Is 350 Lines)
 
-$70-90 Streamable (Pre-Made)
+$50-85 Streamable (Pre-Made)
 
 $85-200 Custom Ui (Price Changes On Style)
 
