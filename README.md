@@ -13,3 +13,5 @@ $30 Smoothness For X And Y Axis (Doesnt Use Jump Detection)
 $40 Web Config (Script And Website Code)
 
 $20-140 Custom Things (Price Changes On Complexity)
+
+$40-50 Advanced Resolver (Pre-Made Very Good For Streamables And Blatant Its Very Smooth)
