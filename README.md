@@ -2,7 +2,7 @@
 
 (USD Only) Cashapp, Crpyto, Robux (1.5X Value So $50 Would Be 7.5K)
 
-$75-275 Streamable (Price Changes On Amount Of Features And Complexity Table Size 150-500)
+$55-245 Streamable (Price Changes On Amount Of Features And Complexity Table Size 150-500)
 
 $35-145 Custom Features (Price Changes On Complexity)
 
