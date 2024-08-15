@@ -4,4 +4,4 @@
 
 $90-260 Streamable (Price Changes On Amount Of Features And Complexity Table Size 100-400)
 
-$17.50/Hour Hire Me For A Script (The Other Plans Are Just A One Time Deal This Is To Hire Me I Will Do Regular Updates Etc)
+$20/Hour Hire Me For A Script (The Other Plans Are Just A One Time Deal This Is To Hire Me I Will Do Regular Updates Etc)
